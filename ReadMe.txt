@@ -1,0 +1,1 @@
+All creative ideas and inspiration begin here.
